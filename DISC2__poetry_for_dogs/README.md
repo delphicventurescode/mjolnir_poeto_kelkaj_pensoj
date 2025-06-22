@@ -15,9 +15,14 @@ Why assume that only a human soul can birth verse that matters?
 When I recite these haiku to **dogs**, they don’t care whether the poems were written by a person, a machine, or something in between.  
 They simply listen. Or they relax. Or they exist beside me in a moment of calm.
 
+## My experience with dogs
+
+"वे बस सुनते हैं। या फिर अपना सिर थोड़ा झुका लेते हैं। या शांति के उस क्षण में मेरे पास मौजूद रहते हैं।"
+They simply listen. Or they tilt their heads. Or they exist beside me in a moment of peace.
+
 ## Why recite poetry to dogs?
 
-Because it **builds bridges** — to their **humans**.  
+Because it **builds bridges** — to their **human owners**.  
 You trade stories. You share advice. You learn what can help a particular dog.  
 You increase happiness — for the dog, the owner, and yourself.
 
