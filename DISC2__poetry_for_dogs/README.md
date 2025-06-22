@@ -28,7 +28,6 @@ You increase happiness — for the dog, the owner, and yourself.
 
 And for **stray dogs** — often carrying the trauma of abuse — a soft, rhythmic voice can be a gentle invitation.  
 A signal that **not all humans are cruel**.  
-You use verse as a form of **emotional first aid**.
 
 ---
 
