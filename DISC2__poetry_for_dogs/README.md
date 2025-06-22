@@ -1,6 +1,6 @@
 # Poems for Dogs: A Manifesto Against Species-ism in Art
 
-I have written over ten books of poetry — all of them **haiku**, all of them in **Esperanto**.
+I have written over ten books of poetry in Esperanto — all of them **books of haiku**, all of them in **three line Esperanto verse**.
 
 But here’s the twist: many of these poems are **machine-generated**.
 
