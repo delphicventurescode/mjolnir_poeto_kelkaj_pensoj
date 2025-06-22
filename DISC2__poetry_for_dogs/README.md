@@ -17,7 +17,9 @@ They simply listen. Or they relax. Or they exist beside me in a moment of calm.
 
 ## My experience with dogs
 
+
 "वे बस सुनते हैं। या फिर अपना सिर थोड़ा झुका लेते हैं। या शांति के उस क्षण में मेरे पास मौजूद रहते हैं।"
+
 They simply listen. Or they tilt their heads. Or they exist beside me in a moment of peace.
 
 ## Why recite poetry to dogs?
